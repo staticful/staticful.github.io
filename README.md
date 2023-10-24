@@ -1,0 +1,1 @@
+# staticful.github.io
